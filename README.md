@@ -1,4 +1,4 @@
-OMG OMG OMG OMG
+hehehehe
+# Ayo DEV1 modified this branch!
 # This README is absoulte fire
-# I will commit it from dev1
 # Shadow wizard money gang
